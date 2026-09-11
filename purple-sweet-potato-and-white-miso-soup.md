@@ -41,4 +41,4 @@
 
 9. **Serve.** Ladle the soup into bowls. Top with the toasted slivered almonds, a small drizzle of olive oil or melted vegan butter, and freshly ground black pepper.
 
-**Important note:** Add the miso after removing the soup from direct heat to preserve its flavor. Start with less lemon and increase gradually—the acidity is there to balance the sweet potato and miso, not dominate the soup.
+**Important note:** Add the lemon after removing the soup from direct heat to preserve its flavor. Start with less lemon and increase gradually—the acidity is there to balance the sweet potato and miso, not dominate the soup.
