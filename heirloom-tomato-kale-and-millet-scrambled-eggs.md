@@ -1,4 +1,4 @@
-# Heirloom Tomato, Kale & Toasted Millet Scrambled Eggs
+# Heirloom Tomato, Kale & Millet Scrambled Eggs
 
 **Servings:** 1–2
 
