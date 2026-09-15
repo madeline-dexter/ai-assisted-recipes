@@ -9,7 +9,7 @@
 - ¾–1 cup vegetable stock
 - ¾ cup full-fat coconut milk
 - A dash of freshly grated nutmeg
-- Salt, to taste
+- Salt and pepper, to taste
 
 ### Topping
 - 2 Tbsp toasted slivered almonds
