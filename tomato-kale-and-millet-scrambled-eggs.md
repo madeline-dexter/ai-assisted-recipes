@@ -10,7 +10,7 @@
 - Pinch of salt
 
 ### Scrambled Eggs
-- 4 large eggs
+- 4 large eggs, or egg substitute
 - 1 heirloom tomato, chopped
 - 1 cup chopped kale
 - 2 tablespoons sour cream
