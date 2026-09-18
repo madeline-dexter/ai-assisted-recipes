@@ -58,7 +58,7 @@ Servings: 4
 
 8. **Finish the bordelaise.** Remove from the heat and whisk in the plant butter. Taste and adjust with freshly ground black pepper and kosher salt.
 
-9. **Prepare the portobello steaks.** Wipe the mushroom caps and remove the stems. If desired, scrape out the gills. Lightly coat both sides with neutral oil and season with kosher salt and freshly ground black pepper.
+9. **Prepare the portobello steaks.** Wipe the mushroom caps clean and remove the stems. If desired, scrape out the gills. Lightly coat both sides with neutral oil and season with kosher salt and freshly ground black pepper.
 
 10. **Preheat the grill pan.** Heat a ridged cast-iron grill pan over medium-high to high heat until very hot. A grill press is recommended for achieving firm, well-browned mushroom steaks. If you don't have one, use a heavy spatula or another heavy pan to press the mushrooms.
 
