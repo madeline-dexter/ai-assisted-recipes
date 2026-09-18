@@ -1,4 +1,4 @@
-# Portobellos with Pho-Mushroom Bordelaise
+# Portobellos with Pho Bordelaise
 
 Servings: 4
 
