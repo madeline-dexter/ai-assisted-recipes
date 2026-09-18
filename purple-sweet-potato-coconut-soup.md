@@ -12,6 +12,7 @@ Servings: 2 generous servings
 * ¼ tsp ground coriander
 * ¼ tsp freshly ground white pepper
 * A dash of freshly grated nutmeg
+* MSG, to taste
 * Salt, to taste
 
 ### To Serve
@@ -25,8 +26,8 @@ Servings: 2 generous servings
 
 1. **Prepare the sweet potatoes.** Peel and cut the purple sweet potatoes into chunks.
 2. **Cook the sweet potatoes.** Add the sweet potatoes to a saucepan and cover with water. Bring to a simmer and cook until the potatoes are completely tender, about 15–20 minutes. Drain the starch water well.
-3. **Blend.** Add the vegetable stock, coconut milk, coriander, white pepper, nutmeg, and salt to the drained sweet potatoes. Using an immersion blender, blend until completely smooth and velvety. Add a little more vegetable stock if necessary to reach your desired consistency.
-4. **Adjust the seasoning.** Taste and adjust the salt as needed.
+3. **Blend.** Add the vegetable stock, coconut milk, coriander, white pepper, nutmeg, MSG, and salt to the drained sweet potatoes. Using an immersion blender, blend until completely smooth and velvety. Add a little more vegetable stock if necessary to reach your desired consistency.
+4. **Adjust the seasoning.** Taste and adjust the MSG and salt as needed.
 5. **Serve over jasmine rice.** Divide the cooked jasmine rice between two bowls. Ladle the soup over and around the rice.
 6. **Finish.** Add a splash of Taiwanese black vinegar and a small drizzle of avocado oil to each bowl. Gently swirl to incorporate. Top with toasted slivered almonds.
 
