@@ -44,26 +44,28 @@ Servings: 4
 
 1. **Prepare the mushroom stems.** Trim away any dry or woody portions and finely chop the stems.
 
-2. **Brown the mushrooms.** Heat the oil in a saucepan over medium-high heat. Add the chopped mushroom stems and cook until deeply browned, stirring occasionally.
+2. **Char and toast the aromatics.** Char the ginger in a dry skillet or over a gas flame until deeply browned and blackened in spots. In the dry saucepan, briefly toast the cinnamon, star anise, and coriander seeds until fragrant, about 30–60 seconds. Keep the cinnamon and star anise lightly toasted rather than scorched. Lightly crush the coriander if it has not already been crushed.
 
-3. **Build the mushroom base.** Add the vegetable stock, ginger, cinnamon, star anise, and coriander.
+3. **Brown the mushrooms.** Heat the oil in a saucepan over medium-high heat. Add the chopped mushroom stems and cook until deeply browned, stirring occasionally.
 
-4. **Simmer and reduce.** Bring to a gentle simmer and cook uncovered for 20–30 minutes, allowing the mushroom stems and aromatics to infuse the stock. Continue cooking until the liquid is substantially reduced and concentrated. Remove the whole ginger, cinnamon, star anise, and any large pieces of coriander. Season lightly with salt.
+4. **Build the mushroom base.** Add the vegetable stock, charred ginger, toasted cinnamon, toasted star anise, and toasted coriander.
 
-5. **Make the red wine reduction.** While the mushroom base cooks, heat the oil in a separate saucepan over medium heat. Add the minced shallot and cook until softened but not browned.
+5. **Simmer and reduce.** Bring to a gentle simmer and cook uncovered for 20–30 minutes, allowing the mushroom stems and aromatics to infuse the stock. Continue cooking until the liquid is substantially reduced and concentrated. Remove the whole ginger, cinnamon, star anise, and any large pieces of coriander. Season lightly with salt.
 
-6. **Reduce the wine.** Add the red wine and black pepper. Simmer until the wine is reduced to roughly ¼ of its original volume and becomes concentrated and syrupy.
+6. **Make the red wine reduction.** While the mushroom base cooks, heat the oil in a separate saucepan over medium heat. Add the minced shallot and cook until softened but not browned.
 
-7. **Combine the sauces.** Add the concentrated mushroom demi-glace to the red wine reduction. Simmer gently until the sauce is thick, glossy, and coats the back of a spoon.
+7. **Reduce the wine.** Add the red wine and black pepper. Simmer until the wine is reduced to roughly ¼ of its original volume and becomes concentrated and syrupy.
 
-8. **Finish the bordelaise.** Remove from the heat and whisk in the plant butter. Taste and adjust with freshly ground black pepper and kosher salt.
+8. **Combine the sauces.** Add the concentrated mushroom demi-glace to the red wine reduction. Simmer gently until the sauce is thick, glossy, and coats the back of a spoon.
 
-9. **Prepare the portobello steaks.** Wipe the mushroom caps and remove the stems. If desired, scrape out the gills. Lightly coat both sides with neutral oil and season with kosher salt and freshly ground black pepper.
+9. **Finish the bordelaise.** Remove from the heat and whisk in the plant butter. Taste and adjust with freshly ground black pepper and kosher salt.
 
-10. **Preheat the grill pan.** Heat a ridged cast-iron grill pan over medium-high to high heat until very hot. A grill press is recommended for achieving firm, well-browned mushroom steaks. If you don't have one, use a heavy spatula or another heavy pan to press the mushrooms.
+10. **Prepare the portobello steaks.** Wipe the mushroom caps and remove the stems. If desired, scrape out the gills. Lightly coat both sides with neutral oil and season with kosher salt and freshly ground black pepper.
 
-11. **Sear and char the steaks.** Place the portobello caps gill-side down in the hot grill pan. Press firmly with the grill press and cook without moving for about 3–4 minutes, until deeply browned and distinct grill marks develop. Flip the caps, press firmly again, and cook for another 3–4 minutes, until the second side is deeply browned and the mushrooms have become noticeably firmer.
+11. **Preheat the grill pan.** Heat a ridged cast-iron grill pan over medium-high to high heat until very hot. A grill press is recommended for achieving firm, well-browned mushroom steaks. If you don't have one, use a heavy spatula or another heavy pan to press the mushrooms.
 
-12. **Finish the steaks.** Reduce the heat slightly and add the plant butter. Baste the mushrooms briefly with the melted butter.
+12. **Sear and char the steaks.** Place the portobello caps gill-side down in the hot grill pan. Press firmly with the grill press and cook without moving for about 3–4 minutes, until deeply browned and distinct grill marks develop. Flip the caps, press firmly again, and cook for another 3–4 minutes, until the second side is deeply browned and the mushrooms have become noticeably firmer.
 
-13. **Rest and serve.** Let the portobello steaks rest for 2–3 minutes. Serve with the mushroom bordelaise spooned underneath and over the steaks.
+13. **Finish the steaks.** Reduce the heat slightly and add the plant butter. Baste the mushrooms briefly with the melted butter.
+
+14. **Rest and serve.** Let the portobello steaks rest for 2–3 minutes. Serve with the mushroom bordelaise spooned underneath and over the steaks.
