@@ -1,4 +1,4 @@
-# Apple-Serrano Gazpacho with Bulgur
+# Apple-Serrano Gazpacho over Bulgur
 
 **Servings:** 8
 
