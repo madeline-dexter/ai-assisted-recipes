@@ -15,7 +15,7 @@
 - 2 tsp rasam powder
 - 1 tsp ground cumin
 - 1 tsp freshly ground black pepper
-- ½ tsp turmeric
+- ½ tsp ground turmeric
 - 2 garlic cloves, finely minced
 - 1–2 green chiles, thinly sliced
 - 2–3 tsp tamarind concentrate, to taste
