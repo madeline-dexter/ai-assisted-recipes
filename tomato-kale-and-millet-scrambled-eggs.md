@@ -15,10 +15,10 @@
 - 1 cup chopped kale
 - 2 tablespoons sour cream
 - 1 teaspoon mustard
-- 1 small clove black garlic, finely minced
+- 1 small clove black garlic, minced
 - Salt, to taste
 - Black pepper, to taste
-- 1 tablespoon butter or oil, for cooking
+- 1 tablespoon butter or oil
 
 ### Optional
 - Nutritional yeast, to taste
