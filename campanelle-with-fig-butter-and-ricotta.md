@@ -6,12 +6,12 @@
 
 - 6 oz campanelle
 - 2 tbsp fig butter, plus more to taste
-- 2 tbsp plant ricotta or sour cream
+- 2 tbsp plant-based sour cream
 - 1–2 tsp finely grated lemon zest
 - 1–2 tbsp pasta water, as needed
 - 1 tbsp toasted sliced or slivered almonds
-- Tiny pinch of freshly grated nutmeg
-- Small pinch of salt
+- Pinch of freshly grated nutmeg
+- Kosher salt, to taste
 
 ## Steps
 
