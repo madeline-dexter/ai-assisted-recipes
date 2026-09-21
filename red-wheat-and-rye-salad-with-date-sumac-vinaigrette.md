@@ -11,7 +11,7 @@ Servings: 4
 - ¾ cup finely chopped fresh parsley
 - ½ cup finely sliced red onion
 - ¾ cup pomegranate arils
-- ½ cup toasted walnuts, roughly chopped
+- ½ cup toasted walnuts, chopped
 
 ### Date-Sumac Vinaigrette
 - 3 tbsp olive oil
