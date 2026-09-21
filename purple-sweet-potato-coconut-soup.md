@@ -10,7 +10,7 @@ Servings: 2 generous servings
 * 1½ cups vegetable stock
 * ¾ cup full-fat coconut milk
 * ¼ tsp ground coriander
-* ¼ tsp freshly ground white pepper
+* ¼ tsp ground white pepper
 * A dash of freshly grated nutmeg
 * MSG, to taste
 * Salt, to taste
