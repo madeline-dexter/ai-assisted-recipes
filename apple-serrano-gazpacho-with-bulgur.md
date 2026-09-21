@@ -6,9 +6,9 @@
 
 ### Gazpacho
 
-- 5 lb heirloom tomatoes, roughly chopped
-- 2 large apples, peeled, cored, and roughly chopped
-- 2 small serrano peppers, roughly chopped
+- 5 lb heirloom tomatoes, chopped
+- 2 large apples, peeled, cored, and chopped
+- 2 small serrano peppers, chopped
 - 4 tbsp extra-virgin olive oil
 
 ### Finishing
