@@ -10,7 +10,7 @@ Servings: 2 generous servings
 - ½ cup cooked white beans
 - ½ small onion, finely diced
 - ½ medium carrot, finely diced
-- 2 tbsp vegan butter
+- 2 tbsp plant butter
 - ¼ tsp ground coriander
 - ½ tsp freshly ground black pepper
 - ½ cup well-drained pickled sorrel, finely chopped
