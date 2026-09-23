@@ -16,7 +16,7 @@
 
 ## Instructions
 
-1. Cook the egg noodles according to the package directions. Reserve the hot cooking water, then drain the noodles.
+1. Cook the egg noodles according to the package directions. Reserve the hot cooking water before draining.
 2. Melt the plant butter in the warm pot over low heat. Add the drained noodles and toss until thoroughly coated with butter.
 3. In a small bowl, whisk together the gochujang, honey, toasted sesame oil, rice vinegar, and 2 tbsp of the hot noodle cooking water until smooth.
 4. Add the sauce to the buttered noodles and toss over low heat until evenly coated and glossy.
