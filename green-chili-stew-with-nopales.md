@@ -1,4 +1,4 @@
-# Green Chile Stew with Nopales
+I'm# Green Chile Stew with Nopales
 
 **Servings:** 2 generous servings
 
@@ -16,7 +16,7 @@
 
 1. Heat 1 tbsp of the oil in a large saucepan or Dutch oven over medium-high heat. Add the nopales and sauté for 15–20 minutes, stirring occasionally, until most of the mucilage has cooked away and the nopales are tender with some browned spots. Transfer to a bowl.
 
-2. Wipe out the pan if necessary. Heat it dry over medium-high heat, with no oil. Add the Hatch chiles, serrano peppers, and onion. Char, turning occasionally, until the chiles are blistered and deeply blackened and the onion is deeply charred and softened. Work in batches if necessary.
+2. Wipe out the pan if necessary. Heat it dry over medium-high heat, with no oil. Add the Hatch chiles, serrano peppers, and onion. Char, turning occasionally, until the chiles are blistered and deeply blackened and the onion is deeply charred and softened.
 
 3. Transfer the Hatch chiles to a bowl and cover for 5 minutes. Peel away the skins, remove the stems and seeds, and roughly chop. Remove the stems from the serranos. Peel away any badly blackened outer layers from the onion and roughly chop.
 
