@@ -6,7 +6,7 @@
 
 - 4 oz (about 2 cups) dry fusilli
 - 1 cup chopped fresh strawberries
-- ¾ cup coconut strawberry yogurt
+- ¾ cup strawberry coconut yogurt
 - ¼ cup chopped pecans, toasted
 - Drizzle of honey, to finish
 
