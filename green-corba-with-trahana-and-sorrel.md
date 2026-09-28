@@ -6,7 +6,7 @@ Servings: 2 generous servings
 
 ### Soup
 - 3½ cups vegetable broth
-- ¼ cup Krajina-style trahana
+- ⅓ cup Krajina-style trahana
 - 1 (15-oz) can white beans, drained and rinsed
 - ¾ small onion, finely diced
 - 1 medium carrot, finely diced
