@@ -1,6 +1,6 @@
 # Tomato, Kale & Millet Scrambled Eggs
 
-**Servings:** 1–2
+**Servings:** 2
 
 ## Ingredients
 
