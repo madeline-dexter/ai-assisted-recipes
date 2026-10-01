@@ -19,6 +19,7 @@
 - ¼ tsp ground white pepper
 - 1 tablespoon plant butter or oil
 - Salt, to taste
+- Plant cheddar shreds, for finishing
 
 ## Instructions
 
@@ -28,4 +29,6 @@
 
 3. **Cook the vegetables:** Heat the plant butter or oil in a skillet over medium heat. Add the chopped kale and cook until it begins to soften. Add the heirloom tomato and cook briefly, just until warmed and slightly softened.
 
-4. **Add the millet and eggs:** Stir the cooked millet into the vegetables, then lower the heat to low. Pour in the egg mixture and gently stir and fold until the eggs are softly set and creamy. Remove from the heat while they are still slightly moist. Taste and adjust the salt, then finish with freshly ground black pepper.
+4. **Add the millet and eggs:** Stir the cooked millet into the vegetables, then lower the heat to low. Pour in the egg mixture and gently stir and fold until the eggs are softly set and creamy.
+
+5. **Finish:** Remove from the heat while the eggs are still slightly moist. Sprinkle with plant cheddar shreds and let stand briefly to melt. Taste and adjust the salt, then finish with freshly ground black pepper.
