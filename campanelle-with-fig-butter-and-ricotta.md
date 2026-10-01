@@ -1,26 +1,34 @@
-# Campanelle with Fig Butter & Ricotta
+# Tomato, Kale & Millet Scrambled Eggs
 
 **Servings:** 2
 
 ## Ingredients
 
-- 8 oz dry campanelle
-- 2 tbsp fig butter, plus more to taste
-- 2 tbsp plant ricotta or sour cream
-- 1–2 tsp finely grated lemon zest
-- 2–3 tbsp pasta water, as needed
-- 1 tbsp toasted sliced or slivered almonds
-- Pinch of freshly grated nutmeg
-- Kosher salt, to taste
+### Millet
+- ¼ cup dry millet
+- ½ cup water
+- Pinch of salt
 
-## Steps
+### Scrambled Eggs
+- 4 large eggs, or egg substitute
+- 1 heirloom tomato, chopped
+- 1 cup chopped kale
+- 2 tablespoons sour cream
+- 1 teaspoon mustard
+- ½ tsp ground black garlic
+- ¼ tsp ground white pepper
+- 1 tablespoon plant butter or oil
+- Salt, to taste
+- Plant cheddar shreds, for finishing
 
-1. **Cook the pasta.** Bring a pot of salted water to a boil. Cook the campanelle according to the package directions until al dente. Reserve the pasta water before draining.
+## Instructions
 
-2. **Toast the almonds.** While the pasta cooks, gently toast the almonds in a dry skillet over medium-low heat until lightly golden and fragrant. Remove from the skillet and set aside.
+1. **Cook the millet.** Rinse the millet if desired. Combine the millet, water, and a pinch of salt in a small saucepan. Bring to a simmer, cover, and cook until the water is absorbed and the millet is tender, about 15 minutes. Remove from heat and let sit covered for 5 minutes, then fluff.
 
-3. **Coat the pasta.** Return the drained pasta to the warm skillet over low heat. Add the fig butter, lemon zest, and 1 tablespoon of pasta water. Toss gently until the fig butter loosens and coats the pasta.
+2. **Prepare the eggs.** Whisk the eggs with the sour cream, mustard, ground black garlic, and white pepper until well combined.
 
-4. **Add the cream.** Remove the skillet from the heat. Add the plant-based ricotta or sour cream and nutmeg. Toss gently until creamy, adding another splash of pasta water if needed to create a silky sauce.
+3. **Cook the vegetables.** Heat the plant butter or oil in a skillet over medium heat. Add the chopped kale and cook until it begins to soften. Add the heirloom tomato and cook briefly, just until warmed and slightly softened.
 
-5. **Season and finish.** Taste and add a small pinch of salt if needed. Transfer to a bowl and finish with the toasted almonds.
+4. **Add the millet and eggs.** Stir the cooked millet into the vegetables, then lower the heat to low. Pour in the egg mixture and gently stir and fold until the eggs are softly set and creamy.
+
+5. **Season and finish.** Remove from the heat while the eggs are still slightly moist. Sprinkle with plant cheddar shreds and let stand briefly to melt. Taste and adjust the salt, then finish with freshly ground black pepper.
