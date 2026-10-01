@@ -25,9 +25,14 @@
 
 ## Steps
 
-1. Combine the tomatoes, apples, serranos, and olive oil in a blender. Blend in batches if necessary until completely smooth.
-2. Pour the blended mixture through a fine-mesh sieve into a large bowl, working in batches and pressing gently on the solids to extract as much liquid as possible. Discard the remaining solids.
-3. Stir the vegetable broth, coriander, sherry vinegar, black pepper, and salt into the strained gazpacho. Taste and adjust the salt, sherry vinegar, and coriander as needed.
-4. Cover and refrigerate for at least 2 hours, until thoroughly chilled.
-5. Cook the bulgur according to package directions. Allow it to cool to room temperature or chill it before serving.
-6. Spoon the bulgur into shallow bowls and pour the chilled gazpacho over it. Serve cold.
+1. **Blend the gazpacho.** Combine the tomatoes, apples, serranos, and olive oil in a blender. Blend in batches if necessary until completely smooth.
+
+2. **Strain the mixture.** Pour the blended mixture through a fine-mesh sieve into a large bowl, working in batches and pressing gently on the solids to extract as much liquid as possible. Discard the remaining solids.
+
+3. **Season the gazpacho.** Stir the vegetable broth, coriander, sherry vinegar, black pepper, and salt into the strained gazpacho. Taste and adjust the salt, sherry vinegar, and coriander as needed.
+
+4. **Chill the gazpacho.** Cover and refrigerate for at least 2 hours, until thoroughly chilled.
+
+5. **Prepare the bulgur.** Cook the bulgur according to package directions. Allow it to cool to room temperature or chill it before serving.
+
+6. **Serve.** Spoon the bulgur into shallow bowls and pour the chilled gazpacho over it. Serve cold.
