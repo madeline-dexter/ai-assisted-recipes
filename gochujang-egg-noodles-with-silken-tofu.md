@@ -22,14 +22,14 @@
 
 ## Instructions
 
-1. Cook the egg noodles according to the package directions. Reserve the hot cooking water before draining.
+1. **Cook the noodles.** Cook the egg noodles according to the package directions. Reserve the hot cooking water before draining.
 
-2. For the noodle version, melt the plant butter in the warm pot over low heat. Add the drained noodles and toss until thoroughly coated with butter.
+2. **Butter the noodles.** For the noodle version, melt the plant butter in the warm pot over low heat. Add the drained noodles and toss until thoroughly coated with butter.
 
-3. In a small bowl, whisk together the gochujang, honey, toasted sesame oil, and rice vinegar until smooth. For the noodle version, whisk in 2 tbsp of the hot noodle cooking water.
+3. **Make the sauce.** In a small bowl, whisk together the gochujang, honey, toasted sesame oil, and rice vinegar until smooth. For the noodle version, whisk in 2 tbsp of the hot noodle cooking water.
 
-4. For the noodle version, add the sauce to the buttered noodles and toss gently over low heat until evenly coated and glossy. Add the remaining 1 tbsp noodle cooking water if needed to loosen the sauce. **For the sundubu version, add the sauce to the pot with the 2 cups vegetable stock and bring to a gentle simmer.**
+4. **Finish the noodles or make the broth.** For the noodle version, add the sauce to the buttered noodles and toss gently over low heat until evenly coated and glossy. Add the remaining 1 tbsp noodle cooking water if needed to loosen the sauce. **For the sundubu version, add the sauce to the pot with the 2 cups vegetable stock and bring to a gentle simmer.**
 
-5. For the noodle version, gently fold in the silken tofu and warm for about 30 seconds. **For the sundubu version, add the noodles and tofu to the simmering broth and cook until heated through and the broth is bubbling, about 1–2 minutes.**
+5. **Add the tofu and finish.** For the noodle version, gently fold in the silken tofu and warm for about 30 seconds. **For the sundubu version, add the noodles and tofu to the simmering broth and cook until heated through and the broth is bubbling, about 1–2 minutes.**
 
-6. Divide between two bowls and garnish with the scallions and toasted sesame seeds.
+6. **Garnish and serve.** Divide between two bowls and garnish with the scallions and toasted sesame seeds.
