@@ -1,4 +1,4 @@
-# 5-Way Cincinnati-Style Buckwheat Chili
+# Cincinnati-Style Buckwheat Chili
 
 **Servings:** 4
 
