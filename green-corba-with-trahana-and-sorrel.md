@@ -1,6 +1,6 @@
 # Green Čorba with Trahana & Sorrel
 
-**Servings:** 2 generous servings
+**Servings:** 2
 
 ## Ingredients
 
