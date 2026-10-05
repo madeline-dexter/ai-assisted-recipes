@@ -1,4 +1,4 @@
-I'm# Green Chile Stew with Nopales
+# Green Chile Stew with Nopales
 
 **Servings:** 2 generous servings
 
