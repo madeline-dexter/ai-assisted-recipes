@@ -1,6 +1,6 @@
 # Green Chile Stew with Nopales
 
-**Servings:** 2 generous servings
+**Servings:** 2
 
 ## Ingredients
 
